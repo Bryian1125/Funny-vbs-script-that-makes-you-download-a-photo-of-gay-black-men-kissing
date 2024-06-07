@@ -1,0 +1,1 @@
+Henlo i made this because i have a very low IQ and i thought itd be funny to make, this is my first github repository and i only put this up on github because google drive kept thinking it was a fucking virus and i wanted to show my friends for shits and giggles. That will be all, thank
